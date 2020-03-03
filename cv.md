@@ -9,8 +9,7 @@
 
 5. Nothing to brag about.
 
-6. 
-I tried to find any information from the Internet and study it to the maximum. Until I found The Rolling Scopes School. There are no full-fledged projects.
+6. I tried to find any information from the Internet and study it to the maximum. Until I found The Rolling Scopes School. There are no full-fledged projects.
 
 7. Indicated in paragraph №6.
 
